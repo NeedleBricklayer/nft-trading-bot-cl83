@@ -1,4 +1,4 @@
-# 
+# top NFT Mint Bot for nft trading bot | gas-optimization & volume-analysis is the best nft trading bot, featuring gas-optimization and volume-analysis. Fast, smart, and optimized
 
 
 
